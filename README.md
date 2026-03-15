@@ -1,2 +1,0 @@
-# theorphanagenightmarevideogame2026
-assets
